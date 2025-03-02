@@ -1,3 +1,1 @@
  Haroon nadir
-.
-.
